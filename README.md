@@ -1,1 +1,0 @@
-# beagoulartt.github.io
